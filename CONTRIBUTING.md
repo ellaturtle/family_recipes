@@ -1,1 +1,1 @@
-We accept suggestions
+We accept many suggestions
